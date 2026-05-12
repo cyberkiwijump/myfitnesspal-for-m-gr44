@@ -1,4 +1,4 @@
-# 
+# vip MyFitnessPal for macOS Extension | social-sharing + water-intake-tracking offers the most advanced MyFitnessPal for macOS extension, with social-sharing and
 
 
 
